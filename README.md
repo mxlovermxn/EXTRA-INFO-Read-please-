@@ -1,4 +1,4 @@
-# Extra info abt me^^
+# Extra info abt me^^ (NOT FINISHED)
 <p align="Center">
 𝐆𝐫𝐞𝐞𝐭𝐢𝐧𝐠𝐬! 𝐢𝐦 𝐢𝐯𝐨𝐫 𝐨𝐫 𝐯𝐢𝐜𝐭𝐨𝐫, 𝐘𝐨𝐮𝐫 𝐜𝐡𝐨𝐢𝐜𝐞.
 </p>
